@@ -1,1 +1,1 @@
-This is a Brownie made through Nutella. It's very delicious and is made in a mug only in 2 minutes. So do checkout the simple recipie so that you can even enjoy this desert!
+This is a Brownie made through Nutella. It's very delicious & easy and is made in a mug only in 2 minutes. 
